@@ -1,1 +1,1 @@
-# thrtt-sept-2024
+# thrtt-sept
